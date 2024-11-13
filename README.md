@@ -1,0 +1,1 @@
+# Repositorio-lab6-mintic
